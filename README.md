@@ -1,0 +1,2 @@
+# xns.igame.com
+fbdgbgdhng
